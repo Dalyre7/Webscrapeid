@@ -5,3 +5,7 @@ This code is currently being worked on, please check back.
 
 
 Please dont' clone repository, nothing here.
+
+Instagram account is no longer active.
+
+//////////////
