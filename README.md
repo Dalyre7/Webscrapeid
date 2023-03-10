@@ -4,7 +4,7 @@ This code is currently being worked on, please check back.
 В настоящее время недоступен.
 
 
-Please dont' clone repository, nothing here.
+No longer in development.
 
 Instagram account is no longer active.
 
